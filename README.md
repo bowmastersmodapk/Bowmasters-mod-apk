@@ -1,1 +1,1 @@
-# Bowmasters MOD APK Latest Version, Unlimited Gems & All Characters Unlocked.
+# Bowmasters MOD APK Latest Version, Unlimited coins & All Characters Unlocked.
